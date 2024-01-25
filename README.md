@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @Rina2024
+- i am sooo new to github
